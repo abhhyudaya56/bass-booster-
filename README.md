@@ -1,3 +1,4 @@
+DOWNLOAD HERE! https://drive.google.com/file/d/1YfDCrivi1mBnvnpjBoQjhHlrp1FHTZXi/view?usp=sharing
 # AfterSlap Bass Enhancer 🔊
 
 🎧 Boost bass intelligently without killing vocal clarity.
